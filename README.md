@@ -1,6 +1,6 @@
 # 🐈‍⬛&nbsp;Hey you!
 
-I'm **An**, I paint, draw and design things that I end up destroying later but the best things survive. If you want to contact me you can do it here.
+I'm **An**, I paint, draw and design things that I end up destroying but the best things survive. If you want to contact me you can do it here.
 
 >
 
